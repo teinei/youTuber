@@ -1,4 +1,6 @@
-Channel Analysis: kyoPaon•구글 (kyoPaon•Google)
+Channel Analysis: 
+
+kyoPaon•구글 (kyoPaon•Google)
 	•	Channel URL: https://www.youtube.com/user/kiooia or https://www.youtube.com/channel/UCuHds4Oq95eG3vt9alkcctA
 	•	Focus: Nature and bird watching, especially short clips of birds in action. Content includes magpies, peacocks, mergansers (ducks), colorful birds at flowers, blue birds, and similar wildlife moments.47
 Content Style
